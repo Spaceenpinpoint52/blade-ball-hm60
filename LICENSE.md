@@ -1,4 +1,4 @@
-#  
+#  blade ball smart Script is the best blade ball Script, featuring auto-collect and auto-sell. Safe and powerful for all your needs.
 
 
 
